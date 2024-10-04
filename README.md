@@ -1,3 +1,3 @@
-- 👑 I am b-xs
-- 🔨 I am a co - founder of ringo and have developed on RVM Protect
+- 👑 I am b-xs (rob boss)
+- 🔨 I literally do not know. Old ringo owner
 
