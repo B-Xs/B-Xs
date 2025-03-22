@@ -1,4 +1,4 @@
 
-![Olympia](https://github.com/user-attachments/assets/94075aaf-1a46-41dd-811c-c71d7956ee3a)
+![Olympia](https://github.com/B-Xs/B-Xs/blob/271a22b5011225942c0c7f491d38ebc98cc78768/Lympia.png)
 
 - My current project im *focused* on is Olympia
